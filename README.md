@@ -1,0 +1,1 @@
+# https-github.com-jarangpulang097-ia8aoaoOzoaoa-blob-master-Tidak-20berjudul.js
